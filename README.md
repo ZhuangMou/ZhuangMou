@@ -1,4 +1,4 @@
-<img align="right" src="https://count.getloli.com/get/@:Minori-ty?theme=rule34">
+<img align="right" src="https://count.getloli.com/get/@:iszmr?theme=rule34">
 ## 电子爱好者
 
 ### **社交主页：**
